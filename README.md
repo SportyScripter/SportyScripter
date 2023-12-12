@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Adrian
 - 👀 I’m interested in computer science and related issues, additionally, I am very physically active.
 - 🌱 I’m currently studying and learning python and java.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I'm open to new cooperation.
 - 📫 How to reach me:
 - Linkedin: [...](https://www.linkedin.com/in/adrian-kacorzyk-357306280/)
 - Instagram: [...](https://www.instagram.com/a_a.d.r.i.a.n_n/)
