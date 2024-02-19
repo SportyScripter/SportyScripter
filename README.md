@@ -7,7 +7,7 @@
 - Instagram: [...](https://www.instagram.com/a_a.d.r.i.a.n_n/)
 
 
-SportyScripter/SportyScripter 
+Adrian Kacorzyk/SportyScripter 
 Optimistic IT enthusiast and active life lover. I've been fascinated by the world of technology since forever, exploring its intriguing possibilities. 
 I believe that nothing is impossible, and the only limitations exist in our minds.
 Life has taught me that the power of perseverance, consistency, and commitment can make any dream achievable.
